@@ -8,7 +8,9 @@
   I'm mostly in⠀⠀<strong>the spαwn areα⠀on the esp server</strong>⠀⠀
   or in <strong>the gi⠀areα on the⠀⠀eng server</strong>.
 </p>
-
-<p align="center">
-  ⟡ <a href="https://en.pronouns.page/@sukunahubby">pronouns.page</a> ⟡
+<p align="left">
+  ⏜︵⠀⠀<a href="https://en.pronouns.page/@sukunahubby">prns.page</a>
+⠀⠀৴⠀⠀
+  <a href="https://sukunahubby.atabook.org">ata</a> <img src="https://cdn.discordapp.com/attachments/1484248061730619482/1504954159949152388/IMG_6377.gif?ex=6a08dd48&is=6a078bc8&hm=454230c9bf0f9066aa9346c76c02c83f98d3a78bbf8b2b85a8e358b89d2df549&" width="20">
 </p>
+⠀⠀Sign⠀⠀ata⠀⠀˶>⩊<˶)
