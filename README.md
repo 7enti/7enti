@@ -10,5 +10,5 @@
 </p>
 
 <p align="center">
-  ⟡ <a href="https://en.pronouns.page/@zombiert">pronouns.page</a> ⟡
+  ⟡ <a href="[https://en.pronouns.page/@zombiert">pronouns.page](https://en.pronouns.page/@sukunahubby)</a> ⟡
 </p>
