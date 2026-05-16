@@ -5,8 +5,8 @@
 <hr>
 <br>
 <p align="center">
-  I'm mostly in⠀⠀<strong>the spαwn areα⠀on the esp server</strong>⠀⠀
-  or in <strong>the gi⠀areα on the⠀⠀eng server</strong>.
+  I'm mostly in⠀⠀<strong>the spαwn areα⠀on the sαfe spαnish server</strong>⠀⠀
+  or in <strong>the gi⠀areα on the⠀⠀english sαfe server</strong>.
 </p>
 <p align="left">
   ⏜︵⠀⠀<a href="https://en.pronouns.page/@sukunahubby">prns.pαge</a>
