@@ -44,7 +44,7 @@
   (homophobic, racist, etc.), problematic fandom such as ybc,
   pro/darkshipper
   <br>
-  ☒ This is just a really basic dni, I honestly don't mind
-  interacting with everypony, I only ask to you to don't be
+  ☒ This is just a really basic dni, I honestly love
+  interacting with everypony (but I'm really stupid so I get dumb when interacting with others), I only ask to you to don't be
   problematic or a weirdo with me.
 </details>
