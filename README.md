@@ -20,9 +20,9 @@
 ![Texto alternativo](https://cdn.discordapp.com/attachments/1484248061730619482/1505648998248087582/Untitled333_20260517160921.png?ex=6a0b6466&is=6a0a12e6&hm=667e6239c9051ae9e6c73b6394f31c489b3eb77402bf3a10cf3fee2ee82c1ea5&)
 <p align="center"> <img src="https://cdn.discordapp.com/attachments/1484248061730619482/1505665447830491156/IMG_6456.png?ex=6a0b73b8&is=6a0a2238&hm=a6b42c6252acb5c1b01e0a7627f1c4a7b9329adec9096ec24462754e930634b6&" width="100"> <img src="https://cdn.discordapp.com/attachments/1484248061730619482/1505665482726834266/IMG_6451.png?ex=6a0b73c0&is=6a0a2240&hm=ad3ec5dd2060425456f1a8ac48e41be0576d08d97de0cbcfbecb3c9d2e93432d&" width="100"> </p>
 
-<p align="center" style="margin-bottom:-10px;">
+<p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=B4B4B4&center=true&vCenter=true&width=900&lines=If+you're+a+Yumeshipper%2C+send+me+a+message+on+discord!" />
-</p><p align="center" style="margin-top:-10px;">
+</p><p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=B4B4B4&center=true&vCenter=true&width=900&lines=with+your+yumesona+and+f%2Fo!+I+might+prolly+draw+you+yumeship!" />
 </p>
 
