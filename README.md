@@ -29,19 +29,21 @@
 ![Texto alternativo](https://cdn.discordapp.com/attachments/1484248061730619482/1505649018141802627/Untitled338_20260517161036.png?ex=6a0b646b&is=6a0a12eb&hm=b5b18e7e7ad481afcedb6b0c506f1101a17af089071dcbaaec98cb7ba4ef51dc&)
 
 
-<details align="center">
+<details align="left">
   <summary>⠀⠀I. Fandoms . . .⠀⠀</summary>
   jjk, gachiakuta, inu-oh, ons/sota, vnc, hetalia, nanbaka,
   link click, no.6, SERVAMP, Youjo Senki, Scissor seven,
   Opm, How to keep a Mummy, Assassination Classroom, Bsd,
   To Be a Hero X, Pokémon, Mononoke, WtDSIK, CCiAWwMAS
+  <br>
   ☒ I'm prolly forgetting a few, but whtv!
 </details>
-<details align="center">
+<details align="left">
   <summary>⠀⠀II. Do Not Interact . . .⠀⠀</summary>
   25+yo, loli/shotacon support, basic dni criteria
   (homophobic, racist, etc.), problematic fandom such as ybc,
   pro/darkshipper
+  <br>
   ☒ This is just a really basic dni, I honestly don't mind
   interacting with everypony, I only ask to you to don't be
   problematic or a weirdo with me.
