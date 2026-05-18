@@ -36,7 +36,7 @@
   jjk, gachiakuta, inu-oh, ons/sota, vnc, hetalia, nanbaka,
   link click, no.6, SERVAMP, Youjo Senki, Scissor seven,
   Opm, How to keep a Mummy, Assassination Classroom, Bsd,
-  To Be a Hero X, Pokémon, Mononoke, WtDSIK, CCiAWwMAS
+  To Be a Hero X, Pokémon, Mononoke, WtDSIK, CCiAWwMAS, Akudama Drive, Paradox Drive, marriagetoxin, ror, tdp
   <br>
   ☒ I'm prolly forgetting a few, but whtv!
 </details>
