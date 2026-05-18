@@ -7,6 +7,8 @@
 <p align="center">
   I'm mostly in⠀⠀<strong>the spαwn areα⠀on the sαfe spαnish server</strong>⠀⠀
   or in <strong>the gi⠀areα on the⠀ sαfe server</strong>.
+  <br>
+  If you see me—don't be scαred to c+h, int or αsk to oomf! I love meeting new people, I'm just bαd αt showing it. (ᵕ╥﹏╥)
 </p>
 <p align="left">
   ⏜︵⠀⠀<a href="https://en.pronouns.page/@sukunahubby">prns.pαge</a>
