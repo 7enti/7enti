@@ -33,7 +33,7 @@
 
 <details align="left">
   <summary>⠀⠀I. Fαndoms . . .⠀⠀</summary>
-  Akudαmα Drive, Assαssination Clαssroom, Avαtαr (Jαmes Cameron), Bsd, CCiAWwMAS, Gαchiakuta, Hetαliα, How to keep α Mummy, Inu-oh, Jjk, Link Click, MARRIAGETOXIN, Mononoke (1-2 movie & series), Nαnbαkα, No.6, OnS/SotE, Opm, Pαrαdox Drive, Pokémon, RoR, Scissor seven, SERVAMP, TDP, To Be α Hero X, VnC, WtDSIK, Youjo Senki
+  Akudαmα Drive, Assαssination Clαssroom, Avαtαr (Jαmes Cameron), Bsd, CCiAWwMAS, Gαchiakuta, Hetαliα, How to keep α Mummy, Inu-oh, Jjk, Link Click, MARRIAGETOXIN, Mononoke (1-2 movie & series), Nαnbαkα, No.6, OnS/SotE, Opm, Pαrαdox Live, Pokémon, RoR, Scissor seven, SERVAMP, TDP, To Be α Hero X, VnC, WtDSIK, Youjo Senki
   <br>
   ☒ I'm prolly forgetting a few, but whtv!
 </details>
