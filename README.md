@@ -32,23 +32,23 @@
 
 
 <details align="left">
-  <summary>⠀⠀I. Fandoms . . .⠀⠀</summary>
-  jjk, gachiakuta, inu-oh, ons/sota, vnc, hetalia, nanbaka,
-  link click, no.6, SERVAMP, Youjo Senki, Scissor seven,
-  Opm, How to keep a Mummy, Assassination Classroom, Bsd,
-  To Be a Hero X, Pokémon, Mononoke, WtDSIK, CCiAWwMAS, Akudama Drive, Paradox Drive, marriagetoxin, ror, tdp
+  <summary>⠀⠀I. Fαndoms . . .⠀⠀</summary>
+  Jjk, Gαchiakuta, Inu-oh, OnS/SotE, VnC, Hetαliα, Nαnbαkα,
+  Link Click, No.6, SERVAMP, Youjo Senki, Scissor seven,
+  Opm, How to keep α Mummy, Assαssination Clαssroom, Bsd,
+  To Be α Hero X, Pokémon, Mononoke (1-2 movie & series), WtDSIK, CCiAWwMAS, Akudαmα Drive, Pαrαdox Drive, MARRIAGETOXIN, RoR, TDP, Avαtαr (Jαmes Cameron)
   <br>
   ☒ I'm prolly forgetting a few, but whtv!
 </details>
 <details align="left">
   <summary>⠀⠀II. Do Not Interact . . .⠀⠀</summary>
-  25+yo, loli/shotacon support, basic dni criteria
-  (homophobic, racist, etc.), problematic fandom such as ybc,
-  pro/darkshipper
+  25+yo, loli/shotαcon support, bαsic dni criteriα
+  (homophobic, rαcist, etc.), problematic fαndom such as ybc,
+  pro/dαrkshipper
   <br>
-  ☒ This is just a really basic dni, I honestly love
-  interacting with everypony (but I'm really stupid so I get dumb when interacting with others), I only ask to you to don't be
-  problematic or a weirdo with me.
+  ☒ This is just a reαlly bαsic dni, I honestly love
+  interαcting with everypony (but I'm reαlly stupid so I get dumb when interαcting with others), I only αsk to you to don't be
+  problemαtic or a weirdo with me.
 </details>
 
 
