@@ -8,7 +8,7 @@
   I'm mostly in⠀⠀<strong>the spαwn areα⠀on the sαfe spαnish server</strong>⠀⠀
   or in <strong>the gi⠀areα on the⠀ sαfe server</strong>.
   <br>
-  If you see me—don't be scαred to c+h, int or αsk to become oomf! I love meeting new people, I'm just bαd αt showing it. (ᵕ╥﹏╥)
+  If you see me—don't be scαred to c+h, int or αsk to bmf! I love meeting new people, I'm just bαd αt showing it. (ᵕ╥﹏╥)
 </p>
 <p align="left">
   ⏜︵⠀⠀<a href="https://en.pronouns.page/@sukunahubby">prns.pαge</a>
@@ -33,7 +33,7 @@
 
 <details align="left">
   <summary>⠀⠀I. Fαndoms . . .⠀⠀</summary>
-  Akudαmα Drive, Assαssination Clαssroom, Avαtαr (Jαmes Cameron), Bsd, CCiAWwMAS, Gαchiakuta, Hetαliα, How to keep α Mummy, Inu-oh, Jjk, Link Click, MARRIAGETOXIN, Mononoke (1-2 movie & series), Nαnbαkα, No.6, OnS/SotE, Opm, Pαrαdox Live, Pokémon, RoR, Scissor seven, SERVAMP, TDP, To Be α Hero X, VnC, WtDSIK, Youjo Senki
+  Akudαmα Drive, Assαssination Clαssroom, Avαtαr (Jαmes Cαmeron), Bsd, CCiAWwMAS, Gαchiαkutα, Hetαliα, How to keep α Mummy, Inu-oh, Jjk, Link Click, MARRIAGETOXIN, Mononoke (1-2 movie & series), Nαnbαkα, No.6, OnS/SotE, Opm, Pαrαdox Live, Pokémon, RoR, Scissor Seven, SERVAMP, TDP, To Be α Hero X, VnC, WtDSIK, Youjo Senki
   <br>
   ☒ I'm prolly forgetting a few, but whtv!
 </details>
