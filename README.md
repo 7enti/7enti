@@ -1,7 +1,7 @@
 <img src="https://cdn.discordapp.com/attachments/1484248061730619482/1507412441598787666/IMG_6380.jpg?ex=6a11cebc&is=6a107d3c&hm=6f4a7b5088c5914b2ea7562e88a1cd3d7ce8f8e554efa18f2bb17e95de97bdaf&" width="500">
 ⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀
-<p align="center"> minor⠀⠀⠀argentine⠀⠀⠀transmasc</p>
+<p align="center"> toto⠀⠀⠀argentine⠀⠀⠀transmasc</p>
 <p align="center">⠀ greyromantic⠀⠀⠀</p>
 ⠀⠀⠀⠀⠀⠀⠀⠀
 <p align="center">
