@@ -15,5 +15,5 @@ $${\color{#016915}What \space \space
 <p align="center">ㅤ♡</p>
 
 <p align="center">
-  <a href="https://5ukuna.carrd.co">Carrd</a>
+  <a href="https://7enti.carrd.co">Carrd</a>
 </p>
